@@ -1,0 +1,1 @@
+# practica-icpc-2025
